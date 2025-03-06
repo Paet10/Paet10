@@ -1,4 +1,4 @@
-- 👋 Hi, I’m PAET
+- 👋 Hi, I’m ACE
 - 👀 I’m interested in Social News, Building my crypto journey
 - 🌱 I’m currently learning more about cryto space
 - 💞️ I’m looking to collaborate on ...
